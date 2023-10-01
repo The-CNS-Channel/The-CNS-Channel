@@ -1,0 +1,3 @@
+- 👋 Welcome to The CNS Channel!
+- 👀 I’m interested in Game & Web Development.
+- 📫 You can reach me at: lukasallen10@outlook.com.
